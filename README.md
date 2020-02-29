@@ -14,6 +14,9 @@ https://benfeitoria.com/alicehuman
 Contribua finaciando, divulgando, programando, traduzindo, doando mensalmente e de qualquer outra forma que você quiser.
 
 ## Canais
+### Portal Oficial
+www.alicehuman.tk
+
 ### Twitter
 https://twitter.com/TChiaveri
 
